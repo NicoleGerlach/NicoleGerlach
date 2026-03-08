@@ -1,4 +1,4 @@
-# 👋 Willkommen auf meinem Profil
+# Willkommen auf meinem Profil
 
 ## 👩‍💻 Very important lifeskills
 - Kommunikation
